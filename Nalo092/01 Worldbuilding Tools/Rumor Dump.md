@@ -1,0 +1,5 @@
+- Smuggling of [[Myrium]] out of Meissa has increased within the past few months ([[The Emerald Therians]])
+- Trade between [[House Rousseau]] and the Roving Clans of Saiph have boomed ([[Alinian Vampire Houses]] )
+- Fey creatures have been appearing in [[Beltrast]] Again (The [[Exiles of Rathos]])
+- [[Lion's Sovereign]] has been fighting intensely on the Northern front ([[Legions of Amos]] )
+- Word has spread that the Tenshi Emperor has begun looking for a new "bride" and The Arbiters of Eos have had recent worries of Azeran worship seeping in ([[Sedia]] )
