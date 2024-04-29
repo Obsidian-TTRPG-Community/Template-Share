@@ -8,6 +8,3 @@
 	- claude-3-haiku-20240307
 	- claude-3-sonnet-20240229
 	- claude-3-opus-20240229
-
-Smart-Connect
-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
